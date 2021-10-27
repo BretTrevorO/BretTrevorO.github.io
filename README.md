@@ -1,5 +1,5 @@
-This is Osman Habib Rabbi.
-Personal Website
+Hi, this is Osman Habib Rabbi.
+My Personal Website; for any kind of contact, please reach any of the following sources. Thank you!
 
 # Contact Details
 
