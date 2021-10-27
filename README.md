@@ -11,7 +11,7 @@ Instagram : https://www.instagram.com/osman_habib_rabbi/
 
 LinkedIn : https://www.linkedin.com/in/ohrabbi
 
-Fverr : https://www.fiverr.com/ohrabbi
+Fiverr : https://www.fiverr.com/ohrabbi
 
 Steemit : https://steemit.com/@ohrabbi
 
